@@ -1,0 +1,1 @@
+# SyntaxNova-Smart-Data-Manager-
